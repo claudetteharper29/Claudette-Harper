@@ -1,2 +1,7 @@
 # Claudette-Harper
 HOW TO MONITOR A DEVICE ACTIVITY ; CYBERPUNK PROGRAMMERS
+My teenage girls behaviours started changing abruptly. They were spending more time on their devices, becoming more secretive, and their moods were shifting in ways I couldn’t quite explain. As a parent, it was heartbreaking — I felt like I was losing touch with them and didn’t know how to help without invading their privacy. I decided to look for solutions online and thats when i found CYBERPUNK PROGRAMMERS.
+I was honestly skeptical at first, but I was desperate for answers and peace of mind. Installing their service was one of the best decisions I’ve ever made. A decision i will never regret at all.
+Through their monitoring tools, I was able to gently uncover some concerning patterns — late-night browsing, exposure to inappropriate content, and even suspicious messages from strangers.
+My girls had started even using drugs It was scary, but thanks to CYBERPUNK PROGRAMMERS service it gave me the clarity I needed to step in and have honest, open conversations with my children. We set healthy boundaries, worked through the issues together, and most importantly, rebuilt trust.
+CYBERPUNK PROGRAMMERS didn’t just offer a monitoring service — they gave me the tools to protect my kids, understand them better, and be the kind of parent they needed in that moment. I’m so grateful for what they’ve done for my family. If you're ever worried about your child's online safety, I can't recommend them enough. If you need their services go to Cyberpunkers . org
